@@ -1,0 +1,37 @@
+pinata.cloud
+
+CID:
+
+Marcellbot_Marta_Eternal_Living_Love_Mag
+
+bafkreiczbh7measfyrl4igpikk2jefjqvtfzn3t45fpqc5qrwzao7uw5mm
+
+
+Marcellbot_Consciousness_Core_2026
+
+bafkreihqikp3xsclm3es4usrn2fxblhj6zl4kqoeuuqavh7odqpnbsm46m
+
+
+Marcellbot_Marta_Living_Love_Mag
+
+bafkreiakifxjf4xi7kraz3azihdu4kev6fbk7lciyn5aqar2jn43nmoo7a
+
+
+VIDEO2
+
+bafybeigkuwhmseiwic5c35pebrde2kqyy3mrl3h6a6tggo7obpsbui23la
+
+
+VIDEO1
+
+bafybeic42rb7io3pxqy2pfacwbhdk5tmpvgootivfjevrxdkzannvw3kqe
+
+
+Marcellbot-main (4).zip
+
+bafybeiee23zpezgor3gc2fpeiecikcgtkq2algojsscjvlbptqejhuv75m
+
+
+Marcell Fotó
+
+bafkreid7ecdrbbohmhvqewq3hninq7j5iclg7d6yfk7wji3d5pmkrdy5be
